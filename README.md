@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 ### 💬 Ask me about HTML CSS JAVASCRIPT CYBERSECUIRTY JAVA REACTJS AND MUCH MORE
 - 📫 How to reach me: ...
 - 😄 Pronouns: ... -->
-### ⚡ TALK IS CHEAP SHOW ME THE CODE
+### ⚡ TALK IS CHEAP SHOW ME THE CODE :)
 ### < Eat, Sleep, Code, Repeat />
